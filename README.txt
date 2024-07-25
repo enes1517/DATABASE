@@ -1,0 +1,1 @@
+yeşil kod yazan yere tıklayın zip olarak indirin ve kurun
